@@ -1,1 +1,1 @@
-https://github.com/unisiakhaye-b/clementsUnisiaKhayeCompleteBrandingPackage
+https://github.com/unisiakhaye-b/clementsUnisiaKhayeCompleteBrandingPackage.git
